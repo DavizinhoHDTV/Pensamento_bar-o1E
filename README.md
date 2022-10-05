@@ -1,0 +1,1 @@
+# Pensamento_bar-o1E
